@@ -1,5 +1,5 @@
 Get in touch:<br>
-:email: alexandranadine@proton.me<br>
+:email: alexandra.nadine.lewis@gmail.com<br>
 :arrow_right: [LinkedIn](https://www.linkedin.com/in/alexandra-nadine-lewis/)
 
 Check out some of my favorite projects (on desktop for now, please!):<br>
